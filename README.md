@@ -1,1 +1,2 @@
-# Summer_School_2024
+# SUNRISE Summer school 2024
+
